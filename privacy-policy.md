@@ -1,6 +1,8 @@
 Privacy Policy  
 ----------------
 
+Effective date: July 1, 2022
+
 ### Introduction  
 Our privacy policy will help you understand what information we collect at Jet Age Fuel, how Jet Age Fuel uses it, and what choices you have.
 Jet Age Fuel built the Jet Age Fuel app as a free app. This SERVICE is provided by Jet Age Fuel at no cost and is intended for use as is.
